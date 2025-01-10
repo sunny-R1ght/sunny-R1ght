@@ -1,7 +1,7 @@
 # Probably something about me 😄
 ## Hi there 👋
-And lost be the day to us in which a measure hath not been danced🌱🌱
-And false be every truth which hath not had laughter along with it🔭🔭
+And lost be the day to us in which a measure hath not been danced🌱🌱  
+And false be every truth which hath not had laughter along with it🔭🔭  
 
 <!--
 **sunny-R1ght/sunny-R1ght** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
